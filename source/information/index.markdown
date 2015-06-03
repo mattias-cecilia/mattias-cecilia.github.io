@@ -11,16 +11,25 @@ mottagningen som kommer vara i Sjöscoutkåren af Chapmans lokaler på Dragsö.
 
 Amiralitetskyrkan
 -----------------
+*Observera att vi varit tvungna att byta kyrka från Aspö kyrkia till
+Amiralitetskyrkan pga av renovering av Aspö kyrka. I samband med det ändrades
+tiden för vigseln till 13.00 från 13.30*
 
+Amiralitetskyrkan ligger på södra Trossö vid marinbasen. Vigseln börjar vid
+13.00. Alltså inte 13.30 som gällde för aspö kyrka. Det finns gott om
+parkeringar i närheten av kyrkan. [Här](https://goo.gl/maps/r7yv1) finns en
+karta med kyrkan utprickad.
 
 Mottagningen på Dragsö
 ----------------------
 Mottagningen kommer vara i Sjöscoutkåren af Chapmans lokaler på Dragsö. Dragsö
 kommer man till med bil via broar från centrumön, Trossö.
-[Här](https://goo.gl/maps/HV78M) finns en karta med lokalen utprickad.
+[Här](https://goo.gl/maps/fgj1l) finns en karta med lokalen utprickad.
 
-Mottagningen börjar vid 17.00. Det finns alltså gott om tid för att ta sig från
-Aspö kyrka till festlokalen.
+Mottagningen börjar vid 16.00. Det finns alltså gott om tid för att ta sig från
+Amiralitetskyrkan till festlokalen.
+
+[Här](https://goo.gl/maps/zJxFX) finns vägen från kyrkan till lokalen utritad
 
 Svar på inbjudan
 ----------------
