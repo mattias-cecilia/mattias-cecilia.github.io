@@ -12,4 +12,5 @@ och information om vigseln, mottagningen, transporter och hotell. Här finns
 närmare den stora dagen, med mer information. Efter bröllopet kommer vi även
 lägga upp bilder och annat från bröllopet.
 
-*Observera att vi varit tvungen att byta kyrka p.g.a. renovering*
+*Observera att vi varit tvungen att byta kyrka p.g.a. renovering. Mer info
+finns under länken "Information".*
