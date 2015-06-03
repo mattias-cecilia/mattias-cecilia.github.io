@@ -11,3 +11,5 @@ och information om vigseln, mottagningen, transporter och hotell. Här finns
 även möjlighet att anmäla er. Denna sida kommer uppdateras allt eftersom,
 närmare den stora dagen, med mer information. Efter bröllopet kommer vi även
 lägga upp bilder och annat från bröllopet.
+
+*Observera att vi varit tvungen att byta kyrka p.g.a. renovering*
